@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ShadowV4st
+- 👀 I’m interested in making games
+- 🌱 I’m currently learning gamemaker studio 2
+- 📫 How to reach me discord or gmail (i dont read my gmail much)
+- Discord : shadowv4st display name : ShadowV4st
+- Gmail : shadowv4st1@gmail
